@@ -44,7 +44,7 @@
 
 **<p align="center">COOL PEOPLE MENTION !!</p>**
 
-<p align="center"> $\color{#FF7722}{KYOUYA❤︎}$, Mika, Kyu, Soy, Pheej, Jannet, Rosa, Jesh, Memely, Toyau, Vani, Alex, Blair, Caelus
+<p align="center"> $\color{#FF7722}{KYOUYA}$, $\color{#FF7722}{LEO}$, Mika, Kyu, Soy, Pheej, Jannet, Rosa, Jesh, Memely, Toyau, Vani, Ethe, Leyn, Wyll
 
 #
 <p align="center"> Pssst, remember to take care of yourself!! Stay hydrated and make sure to eat! Rui loves ya! Keep smiling, because every little smile makes the world brighter :3
